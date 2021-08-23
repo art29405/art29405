@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @art29405
 - 👀 I’m interested in sleeping
-- 🌱 I’m currently just learn to know where code that i need to copy for minimize time to working, maximize time to sleeping
+- 🌱 I’m currently just learned to know where code that I need to copy for minimize time to work, maximize time to sleep
 - 💞️ I’m looking to collaborate on ...zzz
 - 📫 How to reach me is dreaming
 
